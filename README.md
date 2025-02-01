@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **blockchain & web3 stuff**
 
-- 📫 How to reach me **salmanbao@gmail.com**
+- 📫 How to reach me **salmancodez@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/salmanbao/details/experience/](https://www.linkedin.com/in/salmanbao/details/experience/)
 
